@@ -1,4 +1,4 @@
-
+Download smart Script for fisch it for fisch it, the best script available, featuring auto-sell and no clip. This powerful tool ensures you have the upper hand in every match,
 
 
 
